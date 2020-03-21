@@ -1,4 +1,4 @@
 # Baby Class Notes
 
-[Bathing](bathing.md)
-[First Weeks](first-weeks.md)
+1. [Bathing](bathing.md)
+2. [First Weeks](first-weeks.md)
