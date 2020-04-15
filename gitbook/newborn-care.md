@@ -111,7 +111,7 @@ Sleep when baby sleeps
 2. Getting enough sleep is difficult for all new parents
 3. Line up support for unexpected necessary naps
 
-Umbilical cord
+## Umbilical cord
 
 Takes 2 to 4 weeks for stump to heal. SHould fall of on it's own
 
@@ -138,3 +138,28 @@ For a boy, have washcloths or extra diaper, because when air hits them, they wan
 
 For girls, clean from inside out.
 
+## Breastfeeding questions
+
+1. Exclusive for 6 months
+2. mix in solid food afterwards, might be good to introduce peanuts to avoid the allergy
+
+## You time
+
+1. Be patient and compassionate with yourself
+2. Give your body time to heal
+3. Know how to recognize baby blue
+4. More than 2 weeks, call
+5. Don't have unrealistic expectations
+
+## Resources
+
+### Phone Numbers
+
+1. Fremont 510-248-3050
+2. San Leandro: 510-454-4050
+3. Hayward Sleepy Hollow: 510-675-4050
+4. KP Advice: 1-866-454-8855
+
+### Baby & Me Online Group
+
+1. Support group for moms
