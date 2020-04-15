@@ -93,3 +93,48 @@ Babies can sleep up to 18 hours a day
 2. 4 to 12 months - 12 hours to 16 hours
 3. 1 to 2 years - 11 hours to 14 hours
 4. 3 to 5 years - 10 hours to 13 hours
+
+Crib
+
+ABC - Alone Back Crib
+
+1. sleeb baby alone
+2. sleep baby on their back
+3. sleep baby in crib always
+4. put nothing in baby's sleep area
+5. do not overdress baby
+6. do not smoke around baby
+
+Sleep when baby sleeps
+
+1. If you ever feel sleepy while holding baby, move baby to bassinet for safety
+2. Getting enough sleep is difficult for all new parents
+3. Line up support for unexpected necessary naps
+
+Umbilical cord
+
+Takes 2 to 4 weeks for stump to heal. SHould fall of on it's own
+
+## First baths
+
+1. Clean eyes outward
+2. Prep bath area before you start
+3. Don't immerse in water before the cord falls off
+
+## Is baby eating enough
+
+Number of diapers per days old
+
+1. 1
+2. 2
+3. 3
+4. 4
+5. 5 to 6
+6. 6 to 8
+
+## Tips for Changing baby diapers
+
+For a boy, have washcloths or extra diaper, because when air hits them, they want to pee
+
+For girls, clean from inside out.
+
